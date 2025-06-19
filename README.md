@@ -22,8 +22,8 @@ https://t.me/Shuizo<br>
 - Venta de tarjetas
 - compra amazon 
 - tienda onlinea 
-- binsk
-- doxxing + reniec 
+- Bins
+- Doxxing
 
 
 **NOTE:** 
